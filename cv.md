@@ -9,4 +9,4 @@
 5. Nothing presentable
 6. Just freelance
 7. I have a higher education (I watched a lot of courses and seminars)
-8. I have a certificate A1, thats all.
+8. I have a certificate A2, thats all.
